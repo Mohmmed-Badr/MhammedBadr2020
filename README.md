@@ -1,3 +1,3 @@
-Hi, I'm Katherine! 👋
+Hi, I'm MOhammed! 👋
 ## 🚀 About Me
 I am a data analyst
